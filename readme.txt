@@ -1,0 +1,4 @@
+ser
+hacer 
+trascender/
+
